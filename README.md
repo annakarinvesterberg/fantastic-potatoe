@@ -1,3 +1,0 @@
-# fantastic-potatoe
-
-Hellu helluu 
